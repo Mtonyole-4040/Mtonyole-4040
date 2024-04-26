@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mtonyole-4040
 - 👀 I’m interested in security 
 - 🌱 I’m currently learning Cyber security 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on security matters
 - 📫 How to reach me saraphinamtonyole@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: hacking isnt illegal 
